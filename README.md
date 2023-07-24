@@ -40,3 +40,14 @@ MESSAGE > https://t.me/+r4q42DHGePA5ZTJk
 THIS TOOL SHOULD ONLY BE USED FOR A LEGITIMATE PURPOSE!
 
 # KEYWORDS
+
+how to ban instagram account
+how to auto delete instagram account
+how to auto delete instagram user
+how to ban instagram users
+how to auto report instagram user
+instagram user ban
+instagram report tool
+instagram report sender
+best instagram report sender tool
+best instagram banning tool
