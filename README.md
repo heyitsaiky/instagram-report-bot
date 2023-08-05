@@ -51,3 +51,5 @@ instagram report tool
 instagram report sender
 best instagram report sender tool
 best instagram banning tool
+instagram ban tool
+instagram report tool
