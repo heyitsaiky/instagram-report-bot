@@ -56,3 +56,4 @@ instagram report tool
 instagram ban tool
 instagram report tool
 instagram bulk reports
+ig banner
